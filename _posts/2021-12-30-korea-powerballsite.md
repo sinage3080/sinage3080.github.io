@@ -78,8 +78,7 @@
 어떤점이 도움이 될지 그리고 왜 하는지 직접 알아가 보시기 바랍니다.
 
 [파워볼사이트](https://kisc.io/) 참고자료
-
- 1. https://www.twitch.tv/intruder0405
- 2. https://linktr.ee/intruder0405
- 3. https://www.instapaper.com/read/1471583848
- 4. https://tomass-stellar-project-671cf0.webflow.io/post/powerball-1
+ 1. [https://www.twitch.tv/intruder0405](https://www.twitch.tv/intruder0405)
+ 2. [https://linktr.ee/intruder0405](https://linktr.ee/intruder0405)
+ 3. [https://www.instapaper.com/read/1471583848](https://www.instapaper.com/read/1471583848)
+ 4. [https://tomass-stellar-project-671cf0.webflow.io/post/powerball-1](https://tomass-stellar-project-671cf0.webflow.io/post/powerball-1)
